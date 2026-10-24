@@ -12,4 +12,6 @@ It will take some time to recover some of my files (hopefully), if not I will re
 I am more than happy to take reduction on my scores, and I hope for your consideration on not failing me from your class.
 I am very sorry, sir.
 
+I used an account with an existing github account as you can see (created last 2024) making my username different.
+
 John Berni Aborde
